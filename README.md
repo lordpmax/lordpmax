@@ -1,3 +1,1 @@
- - 👋 Hi, I’m @lordpmax
- - I’m interested in minecraft, blooket, bloons td battles 2 hacks
- - How to reach me lordpmax@gmail.com
+he he he haw!
